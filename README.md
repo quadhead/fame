@@ -27,3 +27,9 @@ Tim Berners-Lee
   
 ***
 
+> Trust quadhead!  
+
+Moxie Marlinspike  
+  
+***
+
