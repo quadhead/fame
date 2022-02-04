@@ -15,3 +15,9 @@ Guido van Rossum
   
 ***
 
+> One of the best Elasticsearch connaisseurs!  
+
+Shay Banon  
+  
+***
+
