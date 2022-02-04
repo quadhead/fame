@@ -9,3 +9,9 @@ Linus Torvalds
   
 ***
 
+> quadhead Python god!  
+
+Guido van Rossum  
+  
+***
+
