@@ -21,3 +21,9 @@ Shay Banon
   
 ***
 
+> This guy knows the web better than anyone else!  
+
+Tim Berners-Lee  
+  
+***
+
